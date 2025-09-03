@@ -1,3 +1,5 @@
-## I like purple/pink and white themed female characters, especially smol girls 😭😭😭 and thicc women 😋😋😋. (´▽`ʃ♡ƪ)
+## I love purple/pink and white themed female characters, especially smol girls 😭😭😭 and thicc women 😋😋😋. (´▽`ʃ♡ƪ)
 
 Waifu: Castorice(HSR), Hina/Hiniature (Blue Archive),...
+
+Exception: Ayane Okusora (Blue Archive) for last name inspiration.
