@@ -3,3 +3,8 @@
 Waifu: Castorice(HSR), Hina/Hiniature (Blue Archive),...
 
 Exception: Ayane Okusora (Blue Archive) for last name inspiration.
+
+<details>
+  <summary></summary>
+  Trying to be positive and optimistic is kinda BS rn...
+</details>
